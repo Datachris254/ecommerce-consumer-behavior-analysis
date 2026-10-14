@@ -43,3 +43,7 @@ The Power BI dashboard presents the analysis visually, helping users explore pur
 
 
 
+LinkedIn: https://www.linkedin.com/in/christopher-kori-148021303/
+
+
+
